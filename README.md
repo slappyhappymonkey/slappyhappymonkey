@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @slappyhappymonkey
+- 👀 I’m interested in ...soccer
+- 🌱 I’m currently learning ...6 grade
+- 💞️ I’m looking to collaborate on ... stoff
+- 📫 How to reach me ...johnnasob@aol.com
